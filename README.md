@@ -58,7 +58,7 @@ This GitHub contains selected academic projects and research reports that demons
 ## Contact  
 
 - Email: [avambennett1@gmail.com](mailto:avambennett1@gmail.com)  
-- LinkedIn: [[linkedin.com/in/ava-bennett](#](https://au.linkedin.com/in/ava-bennett-b89497211))  
+- LinkedIn: [[[linkedin.com/in/ava-bennett](#](https://au.linkedin.com/in/ava-bennett-b89497211)) ](https://au.linkedin.com/in/ava-bennett-b89497211) 
 
 ---
 
